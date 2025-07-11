@@ -20,4 +20,4 @@
 结语  
 当今日本AV资源种类繁多，选择一个专业、稳定的在线视频平台，是享受优质影片的第一步。从清晰分类到高清播放，从在线点播到离线下载，优质平台为用户带来真正无忧的观影体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav03 )</span>
